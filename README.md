@@ -1,0 +1,1 @@
+# spracovanie-obrazu
